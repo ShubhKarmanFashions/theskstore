@@ -1,0 +1,2 @@
+# theskstore
+Our dresses depict a fusion of Indian ethnic artwork and modern designs for you to be party-ready and summer-ready always. Check out these must-have dresses. Loose and full-length Kaftan or Caftan is an Islamic dress but is equally suitable for parties and weddings for women of other cultures as well. Beautiful embroidered dresses with beautiful and intricate patterns are perfect for an elegant look. Our latest collection of dresses have exclusive trendy and designer Jalabiyas for all occasions. Kaftan, caftan, jalabiya, party dresses, dress for women
